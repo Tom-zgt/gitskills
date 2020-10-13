@@ -4,4 +4,4 @@ we add a new line.
 we lost my way
 no my time to die
 kelikeqi
-shut up
+shut down
